@@ -1,4 +1,4 @@
-# The Worst Kind of Sci Fi 
+# Worst Kind of Sci Fi 
 
 A markdown zine. 
 

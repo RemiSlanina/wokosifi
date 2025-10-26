@@ -1,5 +1,6 @@
 # Worst Kind of Sci-Fi: The Dubious Adventures of the USS *Tittle-Tattle*
-In the year 21XX, humanity’s last hope was a ship held together by duct tape, caffeine, and sheer spite. On **its** heroic journey through spacetime, it saved many a day. This is not that story. This is the story of the USS *Tittle-Tattle*, a vessel that maneuvered through forgotten trash asteroid belts® and satire by the not-so-heroic crew of Uncaptain Unstabilia, constantly falling in love with inanimate objects and especially her one-and-only true AI system, CALM-P.U.T.E.R.
+In the year 21XX, humanity’s last hope was a ship held together by duct tape, caffeine, and sheer spite. On its heroic journey through spacetime, it saved many a day. But this is not that story. This is the story of the USS Tittle-Tattle, a vessel that maneuvered through forgotten trash asteroid belts® and satire, crewed by the not-so-heroic misfits—(not) led by Uncaptain Unstabilia, who was constantly falling in love with inanimate objects (and especially her one-and-only true AI system, CALM-P.U.T.E.R.).
+
 ![Worst Kind of Sci-Fi Ads](/assets/high-polish/wokosifi-no-1.jpg)
 
 One at a time, they brought chaotic disaster to the multiverses… But let’s begin where every good story tends to begin.
